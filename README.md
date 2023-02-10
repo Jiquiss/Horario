@@ -1,4 +1,5 @@
 ![](https://ct.mob0.com/Logo/Skate.png)
+![](https://www.guiasnintendo.com/2c-switch/yoshis-crafted-world/guia-yoshis-crafted-world/img/inicio.jpg)
 # Horario
 Horario de clase
 | Hora | Lunes                             | Martes                            | Miercoles                         | Jueves                            | Viernes                           | sabado |   |   |   |
